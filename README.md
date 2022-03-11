@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @bropleasebro
 - 👀 I’m interested in mangas?? 
 - 🌱 I’m currently learning nothing 
-- 💞️ I’m looking to collaborate on no one
+- 💞️ I’m looking to collaborate with no one
 - 📫 How to reach me, dont <3
 
 <!---
